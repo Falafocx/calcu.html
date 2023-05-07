@@ -1,4 +1,0 @@
-# calcu.html
-
-
-iqowwowowuwoaksnwiqo
